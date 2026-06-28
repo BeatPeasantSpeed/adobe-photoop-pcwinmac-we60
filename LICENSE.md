@@ -1,4 +1,4 @@
-# 
+# Seguro Adobe Photoshop plugins para Mac OS | Ligero Adobe Photoshop plugins para PC Windows. Con exportar spritesheet y mezcla húmeda — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
